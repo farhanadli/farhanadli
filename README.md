@@ -4,7 +4,7 @@
 - 💞️ Semoga yang marah, bisa selalu tabah
 - 😇 Yang tegar, bisa selalu sabar
 - 😍 Dan yang tumbuh, tidak akan terjatuh
-- ⚡ Mari, kita lanjutkan. 
+- ⚡ Mari, kita lanjutkan dengan sangat hebat. 
 
 <!---
 farhanadli/farhanadli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
